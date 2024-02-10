@@ -1,12 +1,6 @@
-![](https://64.media.tumblr.com/848276cf33ae3db3ca6197324de88e01/6b7034c93735d787-6f/s2048x3072/8492130828044d19ae1245f960d7c5d5b7518a9d.pnj)
-![](https://64.media.tumblr.com/678759b995a738ca44606e394c68d0b6/6b7034c93735d787-89/s2048x3072/5e9f2bd3884e7eb28e7a524c2e49f2c70951b2fa.pnj)
-
 <P align="center">
 <img src="https://wilardo.crd.co/assets/images/gallery03/fbb94083.png?v=b62e9456)">
 </P>
-
-![](https://64.media.tumblr.com/7a2e7c79b8e98a69e64ba426bc215c52/6b7034c93735d787-7b/s2048x3072/8bb6eeabd395fe5bc1280faa112a649489a52ac9.pnj)
-![](https://64.media.tumblr.com/3382699bb17a60a731fdbd22c452b017/6b7034c93735d787-20/s2048x3072/585e7748eb8607d01983d0d687a48bd069e29862.pnj)
 
 <!--
 **fennebat/fennebat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
