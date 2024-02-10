@@ -24,7 +24,12 @@
 ](https://wilardo.crd.co/assets/images/gallery16/c0252777.png?v=b62e9456) ![
 ](https://wilardo.crd.co/assets/images/gallery16/278a6290.png?v=b62e9456) ![
 ](https://wilardo.crd.co/assets/images/gallery16/c730583f.gif?v=b62e9456) ![
-](https://wilardo.crd.co/assets/images/gallery16/ffe52cd3.png?v=b62e9456)
+](https://wilardo.crd.co/assets/images/gallery16/ffe52cd3.png?v=b62e9456) ![
+](https://wilardo.crd.co/assets/images/gallery16/4d54d4c2.gif?v=b62e9456) ![
+](https://wilardo.crd.co/assets/images/gallery16/9a99d806.png?v=b62e9456) ![
+](https://wilardo.crd.co/assets/images/gallery30/f4add73e.png?v=b62e9456) ![
+](https://wilardo.crd.co/assets/images/gallery08/c9baaced.gif?v=b62e9456) ![
+](https://wilardo.crd.co/assets/images/gallery08/cfad180c.png?v=b62e9456)
 
 <!--
 **fennebat/fennebat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
