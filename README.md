@@ -29,7 +29,18 @@
 ](https://wilardo.crd.co/assets/images/gallery16/9a99d806.png?v=b62e9456) ![
 ](https://wilardo.crd.co/assets/images/gallery30/f4add73e.png?v=b62e9456) ![
 ](https://wilardo.crd.co/assets/images/gallery08/c9baaced.gif?v=b62e9456) ![
-](https://wilardo.crd.co/assets/images/gallery08/cfad180c.png?v=b62e9456)
+](https://wilardo.crd.co/assets/images/gallery08/cfad180c.png?v=b62e9456) ![
+](https://wilardo.crd.co/assets/images/gallery19/adc7fb9a.gif?v=b62e9456) ![
+](https://wilardo.crd.co/assets/images/gallery26/6775abbd.gif?v=b62e9456) ![
+](https://supplies.ju.mp/assets/images/gallery08/7ce87f0b.gif?v=6a50b904) ![
+](https://blinkiecollecti0n.neocities.org/images/persona5.gif) ![
+](https://graphic.neocities.org/tumblr_omv9uhOLyX1vgjig7o3_250.gif) ![
+](https://64.media.tumblr.com/b9488a3efa64ddd17cce1dd953236a94/76d8d2234287670b-dc/s250x400/f91427c5b1dab0a1b4806eefa1dae56a3903ed65.gifv) ![
+](https://external-media.spacehey.net/media/spJZhJv9tNk8p_8FzU9ZJnDfTc5KCyYy1x-ZpuPMJQFU=/https://64.media.tumblr.com/a87ba36834f21a9dc03eb144a38c7147/8db6db6b98def6b1-25/s100x200/fc7acef9dedf267fb88e252e53c9031855c97ca2.gifv) ![
+](https://wilardo.crd.co/assets/images/gallery25/90aff7b8.gif?v=b62e9456) ![
+](https://wilardo.crd.co/assets/images/gallery19/eb21653e.gif?v=b62e9456) ![
+](https://supplies.ju.mp/assets/images/gallery08/5d568c5f.gif?v=6a50b904) ![
+](https://wilardo.crd.co/assets/images/gallery26/842b46a8.gif?v=b62e9456) 
 
 <!--
 **fennebat/fennebat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
