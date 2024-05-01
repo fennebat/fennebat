@@ -11,3 +11,6 @@
 
 <p align="center">
 <img src="https://media.discordapp.net/attachments/869682572391776296/1235289456068788245/68747470733a2f2f692e696d6775722e636f6d2f625631597063592e706e67.png?ex=6633d474&is=663282f4&hm=7dc4c702d5a0b40cffca6f3cc9e7bb18406df5cabf5c3eb1c7e3e2160ea89669&=&format=webp&quality=lossless">
+
+free palestine 🇵🇸
+[ceasefiretoday](https://ceasefiretoday.com/)
