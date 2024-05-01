@@ -4,6 +4,7 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/be969a98028b177cc239e025b77018ea/0a1781ecc7e7c3ec-1e/s500x750/bb059040baf96db7a24190512b9dba41466eb373.gifv">
 
+<p align="center">
 ✦　︵︵　[rentry](https://rentry.co/ritsubat) ‧ [pronouns](https://pronouns.cc/@invictusgenus/fennebat) ‧ [carrd](https://cinnanenee.carrd.co/)　♡( ◡‿◡ )
 
 <p align="center">
