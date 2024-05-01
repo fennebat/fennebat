@@ -6,7 +6,7 @@
 
 <p align="center"
 
-✦　︵︵　[rentry](https://rentry.co/ritsubat) ‧ [pronouns](https://pronouns.cc/@invictusgenus/fennebat) ‧ [carrd](https://cinnanenee.carrd.co/)　♡( ◡‿◡ )
+✦　︵︵　[rentry](https://rentry.co/ritsubat) ‧ [guestbook](https://magicautismcat.123guestbook.com/) ‧ [carrd](https://cinnanenee.carrd.co/)　♡( ◡‿◡ )
 </p>
 
 <p align="center">
