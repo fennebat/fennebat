@@ -6,7 +6,7 @@
 
 <p align="center"
 
-✦　︵︵　[rentry](https://rentry.co/ritsubat) ‧ [guestbook](https://magicautismcat.123guestbook.com/) ‧ [carrd](https://cinnanenee.carrd.co/)　♡( ◡‿◡ )
+✦　︵︵　[linktree](https://linktr.ee/fennebatt) ‧ [guestbook](https://magicautismcat.123guestbook.com/)　♡( ◡‿◡ )
 </p>
 
 <p align="center">
