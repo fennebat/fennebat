@@ -6,7 +6,7 @@
 
 <p align="center"
 
-✦　︵︵　[linktree](https://linktr.ee/fennebatt) ‧ [guestbook](https://magicautismcat.123guestbook.com/)　♡( ◡‿◡ )
+✦　︵︵　[linktree](https://linktr.ee/fennebatt) ‧ [world of text](https://www.yourworldoftext.com/~fennebat/furina)　♡( ◡‿◡ )
 </p>
 
 <p align="center">
