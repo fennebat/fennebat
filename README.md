@@ -6,7 +6,7 @@
 
 <p align="center"
 
-✦　︵︵　[linktree](https://linktr.ee/fennebatt) ‧ [world of text](https://www.yourworldoftext.com/~fennebat/furina)　♡( ◡‿◡ )
+✦　︵︵　[linktree](https://linktr.ee/fennebatt) ‧ [retrospring](https://retrospring.net/@fennebat)　♡( ◡‿◡ )
 </p>
 
 <p align="center">
