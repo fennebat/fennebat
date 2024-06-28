@@ -11,7 +11,7 @@
 
 <p align="center"
   
-I AM THE CO-FOUNDER OF [GLEEBS](https://rentry.co/gleebs) (the silly alien pony skins)
+CO-FOUNDER OF [GLEEBS](https://rentry.co/gleebs) (the silly alien pony skins)
 
 </p>
 
