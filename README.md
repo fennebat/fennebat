@@ -9,6 +9,12 @@
 ✦　︵︵　[linktree](https://linktr.ee/fennebatt) ‧ [retrospring](https://retrospring.net/@fennebat) ‧ [atabook](https://fennebat.atabook.org/) ♡( ◡‿◡ )
 </p>
 
+<p align="center"
+  
+I AM THE CO-FOUNDER OF [GLEEBS](https://rentry.co/gleebs) (the silly alien pony skins)
+
+</p>
+
 <p align="center">
 <img src="https://files.catbox.moe/jankh6.png"ex=6633d474&is=663282f4&hm=7dc4c702d5a0b40cffca6f3cc9e7bb18406df5cabf5c3eb1c7e3e2160ea89669&=&format=webp&quality=lossless">
 
