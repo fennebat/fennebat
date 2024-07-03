@@ -11,7 +11,7 @@
 
 <p align="center"
   
-CO-FOUNDER & CREATOR OF [GLEEBS](https://rentry.co/gleebs) (the silly alien pony skins)
+CO-FOUNDER & CREATOR OF [GLEEBS](https://rentry.co/gleebs)
 
 </p>
 
