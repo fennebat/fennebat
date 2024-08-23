@@ -6,7 +6,7 @@
 
 <p align="center"
 
-✦　︵︵　[linktree](https://linktr.ee/fennebatt) ‧ [retrospring](https://retrospring.net/@fennebat) ‧ [atabook](https://fennebat.atabook.org/) ♡( ◡‿◡ )
+✦　︵︵　[linktree](https://linktr.ee/fennebatt) ‧ [sparkler](https://sparkler.cc/@fennebat) ‧ [atabook](https://fennebat.atabook.org/) ♡( ◡‿◡ )
 </p>
 
 <p align="center"
