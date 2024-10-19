@@ -6,7 +6,7 @@
 
 <p align="center"
 
-[LiNKTREE](https://linktr.ee/fennebatt) ‧ [RETROSPRiNG](https://retrospring.net/@fennebat) ‧ [NEOSPRiNG](https://neospring.org/@fennebat) ‧ [ATABOOK](https://fennebat.atabook.org/)
+[DiRECTORY](https://rentry.co/mapIesyrup) ‧ [RETROSPRiNG](https://retrospring.net/@fennebat) ‧ [NEOSPRiNG](https://neospring.org/@puddle) ‧ [ATABOOK](https://fennebat.atabook.org/)
 </p>
 
 <p align="center"
