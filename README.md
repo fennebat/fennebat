@@ -6,7 +6,7 @@
 
 <p align="center"
 
-[DiRECTORY](https://rentry.co/mapIesyrup) ‧ [RETROSPRiNG](https://retrospring.net/@fennebat) ‧ [NEOSPRiNG](https://neospring.org/@puddle) ‧ [ATABOOK](https://fennebat.atabook.org/)
+[LiNKS](https://rentry.co/mapIesyrup) ‧ [RETROSPRiNG](https://retrospring.net/@fennebat) ‧ [NEOSPRiNG](https://neospring.org/@puddle) ‧ [ATABOOK](https://fennebat.atabook.org/)
 </p>
 
 <p align="center"
