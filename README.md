@@ -6,13 +6,7 @@
 
 <p align="center"
 
-[LiNKS](https://rentry.co/mapIesyrup) ‧ [RETROSPRiNG](https://retrospring.net/@fennebat) ‧ [NEOSPRiNG](https://neospring.org/@puddle) ‧ [ATABOOK](https://fennebat.atabook.org/) ‧ [WORLD OF TEXT](https://www.yourworldoftext.com/~fennebat/boyfailure)
-</p>
-
-<p align="center"
-  
-CO-FOUNDER & CREATOR OF [GLEEBS](https://rentry.co/gleebs)
-
+[LiNKS](https://rentry.co/boying) ‧ [RETROSPRiNG](https://retrospring.net/@fennebat) ‧ [NEOSPRiNG](https://neospring.org/@puddle) ‧ [ATABOOK](https://fennebat.atabook.org/) ‧ [WORLD OF TEXT](https://www.yourworldoftext.com/~fennebat/boyfailure)
 </p>
 
 <p align="center">
