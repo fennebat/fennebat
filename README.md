@@ -6,7 +6,7 @@
 
 <p align="center"
 
-[LiNKS](https://rentry.co/boying) ‧ [RETROSPRiNG](https://retrospring.net/@fennebat) ‧ [NEOSPRiNG](https://neospring.org/@puddle) ‧ [ATABOOK](https://fennebat.atabook.org/) ‧ [WORLD OF TEXT](https://www.yourworldoftext.com/~fennebat/boyfailure)
+[LiNKS](https://rentry.co/boying) ‧ [RETROSPRiNG](https://retrospring.net/@narancia) ‧ [NEOSPRiNG](https://neospring.org/@narancia) ‧ [ATABOOK](https://fennebat.atabook.org/) ‧ [STRAWPAGE](https://narasito.straw.page)
 </p>
 
 <p align="center">
