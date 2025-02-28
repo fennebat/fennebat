@@ -6,7 +6,7 @@
 
 <p align="center"
 
-[DiRECTORY](https://rentry.co/boying) ‧ [REVOSPRiNG](https://revospring.net/@narancia) ‧ [STRAWPAGE](https://narasito.straw.page)
+[DiRECTORY](https://rentry.co/boying) ‧ [FRAG](https://ask.absturztau.be/@narancia) ‧ [STRAWPAGE](https://narasito.straw.page)
 </p>
 
 <p align="center">
