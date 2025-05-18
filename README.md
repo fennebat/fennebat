@@ -6,7 +6,7 @@
 
 <p align="center"
 
-[DiRECTORY](https://rentry.co/boying) ‧ [SPRiNG](https://spring.love4eva.net/@narancia) ‧ [STRAWPAGE](https://narasito.straw.page) ‧ [ATABOOK](https://narancia.atabook.org/)
+[DiRECTORY](https://rentry.co/boying) ‧ [TETRATTO](https://tetratto.com/@ghirga) ‧ [STRAWPAGE](https://narasito.straw.page) ‧ [ATABOOK](https://narancia.atabook.org/)
 </p>
 
 <p align="center">
